@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LeSkipper
+- 👀 I’m interested in world conquest
+- 🌱 I’m currently learning godot and python
+- 💞️ I’m looking to collaborate with my split personality 
+- 📫 How to reach me try to send mail in hell if you dare
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: don't ask me what i did i do from 1939 to 1945
